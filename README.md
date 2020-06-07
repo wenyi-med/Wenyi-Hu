@@ -1,3 +1,2 @@
-# Wenyi Hu
+# Welcome to my homepage!
 
-Welcome to my homepage!
